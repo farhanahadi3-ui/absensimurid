@@ -1,0 +1,2 @@
+# absensimurid
+ABSENSI MURID SMK FAJAR INDAH 2026
